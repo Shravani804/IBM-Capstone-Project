@@ -3,7 +3,7 @@
 
 In today's fast-paced and digitally driven world, maintaining a consistent and healthy lifestyle has become increasingly difficult. Many individuals face challenges such as:
 
-1. Lackofpersonalized fitness guidance
+1. Lack of personalized fitness guidance
 2. Limited time for scheduled workouts
 3. Inaccessibility to professional trainers or nutritionists
 4. Inconsistent motivation to stay on track with wellness goals
